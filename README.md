@@ -64,4 +64,4 @@ Clone your existing sessions across multiple accounts with ease! Whether for sca
    📥 Archive  
    🗑️ Deleted
 
-CONTACT ON TELEGRAM TO BUY SESSIONS OR SOFTWARE @KazimBasha0
+# CONTACT ON TELEGRAM TO BUY SESSIONS OR SOFTWARE @KazimBasha0
